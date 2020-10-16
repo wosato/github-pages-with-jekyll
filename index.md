@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I don't have any plans to talk at this blog.
+I'm glad you are here. I haven't decided what I'm going to talk about on this blog
